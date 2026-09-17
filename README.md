@@ -1,1 +1,2 @@
 # Una-historia
+Millones de nudos, uno al lado del otro, dispuestos con exactitud milimétrica. Colores que devienen de un teñido cuya materia prima es invariablemente natural. Y, por detrás, manos sabias en una de las tradiciones artísticas —porque el trabajo bien vale esa denominación— más antiguas del mundo. Esos elementos definen a las apreciadas alfombras orientales, esas que en los cuentos eran mágicas y volaban… Es que, con solo verlas, la mente emprende un viaje a las lejanías que las vieron nacer.
